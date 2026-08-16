@@ -288,8 +288,7 @@ Animal hospital
 <summary>DISLIKES !</summary>
 
 
-Ehh, anti vs pro/dark/comship wars. No, I am not a dark/proshipper or an anti. I also don’t want to be labeled as any of them. 
- 
+Ehh, anti vs pro/dark/comship wars. Don’t slap me any of those labels.
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
 
@@ -311,11 +310,10 @@ Batfam fans and Eddsworld fans unless friends.
 <summary>I WONT BEFRIEND/WILL BLOCK !</summary>
   
 
- ccherrypie/j-pawss & friends. Hoping he’s not around and please do NOT mention him.
+ ccherrypie/j-pawss. Hoping he’s not around and please do NOT mention him.
 
 
 
- Most of my ex friends and ppl who are friends with them. This always happens to me whenever someone interacts with me without knowing they are friends with them. its uncomfortle and awkward at the same time, and I don’t want to upset any of them. Unless you're friends with j-pawss, fuck off.
 
 ➤  My friends ex friends
 
