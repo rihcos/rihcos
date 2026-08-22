@@ -25,9 +25,9 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 
    
- ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Rae, Sol, or Aster
+ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Rae, or Sol
  
- ⠀ 𐂂⠀- rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
+ ⠀ 𐂂⠀- rest;Damian, Aster Azrael,Thorne, or Ghoul!
     
     
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pron; they / she / any
