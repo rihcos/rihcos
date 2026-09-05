@@ -1,4 +1,5 @@
-Please read this before you try to interact or follow me. I noticed some people who blocked or harassed me out of the blue are now trying to befriend or follow me on GitHub. Sorry, I don't know if that's an accident or on purpose. What is the point of this?
+Please read this before you try to interact or follow me. I noticed some people who blocked or harassed me out of the blue are now trying to befriend or follow me before I can remove them. Sorry, I don't know if that's an accident or on purpose. What is the point of this?
+Sorry, dealing with these types of people is so stressful. They don't even think before following someone they target
 
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
@@ -317,22 +318,17 @@ Batfam fans and Eddsworld fans unless friends.
 
 
 
-➤  My friends ex friends
+ My friends ex friends
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
 
  
-lazy to list others; I'm going to block whoever I want
+Not going to list others. I'm going to block whoever I want. Like I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
 
    
 </details>
 
-<details>
-<summary>EXTRA !</summary>
 
-I block freely! If I don't like your vibe, I'll probably avoid or block you. I will mostly ignore doubles
-
-</details>
 
 
 <img src="https://github.com/bat-z/bat-z/blob/db593743f20395762a6155e74a6c6c89d94c307e/IMG_8507.jpeg" width="90%">
