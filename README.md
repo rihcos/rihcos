@@ -2,7 +2,7 @@ please read before you int or follow me. [something something …](https://burrr
 
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
-$${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
+$${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
  
    ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://magicalgirll.atabook.org/)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ ⠀If you want to draw;⠀   [STRAWPAGE](h) 
 
