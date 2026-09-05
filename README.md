@@ -1,5 +1,5 @@
 Please read this before you try to interact or follow me. I noticed some people who blocked or harassed me out of the blue are now trying to befriend or follow me before I can remove them. Sorry, I don't know if that's an accident or on purpose. What is the point of this?
-Sorry, dealing with these types of people is so stressful. They don't even think before following someone they target
+Sorry, dealing with these types of ponytown players is so stressful. They don't even think before following someone they target
 
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
