@@ -315,7 +315,7 @@ Batfam fans and Eddsworld fans unless friends.
 <summary>I WONT BEFRIEND/WILL BLOCK !</summary>
   
 
- ccherrypie/j-pawss. Hoping he’s not around and please do NOT mention him.
+ ccherrypie/j-pawss. Hoping he’s not around 
 
 
 
