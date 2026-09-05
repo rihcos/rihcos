@@ -17,7 +17,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
-<img src="https://github.com/bat-z/bat-z/blob/cdad4e7daca15e76301a91401c64ec732d9f3aaa/783844DD-6F1D-4FBD-B814-D6349ACB7E35.jpeg" width="40%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%"><img src="https://github.com/bat-z/bat-z/blob/8b00d623450af5b8123f216a205cf24ae33581a3/237699B5-F816-4797-917E-BA6E00FC5864.jpeg" width="20%">
+<img src="https://github.com/bat-z/bat-z/blob/cdad4e7daca15e76301a91401c64ec732d9f3aaa/783844DD-6F1D-4FBD-B814-D6349ACB7E35.jpeg" width="40%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%">
   
 ⠀ ⠀ ⠀𐂂⠀  --⠀  My name is Hal, Rae, or Sol. 
 ⠀ ⠀
