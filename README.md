@@ -60,7 +60,11 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
  <details>                     
 <summary>BEFORE YOU INTERACT! !</summary>
 
-  I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when it comes with new people. I don’t want to come across as annoying or as if I'm bothering anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. I overshare a lot. if you find it annoying, let me know!
+
+— I am aware that I am a weirdo.
+if you think me being alterhuman, use microlabels, any xenogenders or anything else that’s too far. Then please do not interact or just simply block me. I use these terms to help myself.
+
+—  I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when it comes with new people. I don’t want to come across as annoying or as if I'm bothering anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. I overshare a lot. if you find it annoying, let me know!
 
 
 Please bear in mind that I have dyslexia and dyscalculia. My main problems are basic spelling, grammar, counting, and more. Don't be upset
