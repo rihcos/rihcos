@@ -1,4 +1,4 @@
-[something something …](https://burrrrps.straw.page)
+please read before you int or follow me. [something something …](https://burrrrps.straw.page)
 
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
