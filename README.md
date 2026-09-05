@@ -1,3 +1,5 @@
+Please read this before you try to interact or follow me. I noticed some people who blocked or harassed me out of the blue are now trying to befriend or follow me on GitHub. Sorry, I don't know if that's an accident or on purpose. What is the point of this?
+
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
