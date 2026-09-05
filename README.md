@@ -1,5 +1,7 @@
-Please read this before you try to interact or follow me. I noticed some people who blocked or harassed me out of the blue are now trying to befriend or follow me before I can remove them. Sorry, I don't know if that's an accident or on purpose. What is the point of this?
-Sorry, dealing with these types of ponytown players is so stressful. They don't even think before following someone they target
+I don’t know if this counts as venting or an agrument, as I’m not mentioning names. I noticed that some people who blocked or harassed me out of the blue are now trying to befriend or follow me. 
+I don't know if it's an accident or on purpose. Like, no offense, but what is the point of this? 
+Dealing with these types of Pony Town players is so stressful. They don't even think before following someone they targeted. For God's sake, follow your own DNI or respect someone else's DNI
+It goes both ways
 
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
