@@ -61,36 +61,35 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 <summary>BEFORE YOU INTERACT! !</summary>
 
 
-— I am aware that I am a weirdo.
-if you think me being fictionkin/alterhuman, use microlabels, xenogenders or anything else that’s taken too far. Then please do not interact or just simply block me. I use these terms to learn about myself.
+— I am aware that I am a weirdo. If you think I've taken things too far by being fictionkin/alterhuman, using microlabels, xenogenders, or anything else, that is a you problem. Not mine or anyone else's. Do not interact, or simply block me if you are uncomfortable with my existence or our community. I use these terms to discover more about myself. That is it.
 
-—  I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when it comes with new people. I don’t want to come across as annoying or as if I'm bothering anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. I overshare a lot. if you find it annoying, let me know!
+—  I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when it comes with new people. I don’t want to come across as annoying or as if I'm bothering anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-Please bear in mind that I have dyslexia and dyscalculia. My main problems are basic spelling, grammar, counting, and more. Don't be upset
-
+— Please bear in mind that I have dyslexia and dyscalculia. My main problems are basic spelling, grammar, counting, and more. Please don’t be upset
 
 
 
-I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
- If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me.
+— I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-
-  I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
-
- I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
+— If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me.
 
 
+  — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
-If I befriend or int with a problematic person, let me know
+ — I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
+
+
+
+— If I befriend or int with a problematic person, let me know
    
 
 
 More in here;
 
 
-[BEFORE YOU INTERACT](https://oldmenyaoislop.straw.page/beforeyouinteract)
+[BEFORE YOU INTERACT](https://oldmenyaoislop.straw.page/iskssoos)
 
 </details>
 
@@ -133,15 +132,15 @@ More in here;
 
   Doom slayer . ID - doubles? DNI
   
-  Hal Jordan . ID - doubles? DNI
+  Hal Jordan . Fullkin/ID - doubles? DNI
  
- Damian Wayne . ID - doubles? DNI
+ Damian Wayne . Fullkin/ID - doubles? DNI
 
-  Harvey dent/Two face . ID - doubles? IWEC
+  Harvey dent/Two face . Fullkin/ID - doubles? IWEC
   
 Music meister . HIGH - doubles? IWEC
 
-Angel xmen . HIGH - doubles? IWEC
+Angel xmen . Fullkin - doubles? IWEC
 
 Jetfire/Skyfire . ID - doubles? IWEC
   
