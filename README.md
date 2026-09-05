@@ -331,6 +331,7 @@ Not going to list others. I'm going to block whoever I want. Like I block freely
 </details>
 
 
+<img src="https://github.com/bat-z/bat-z/blob/8969fed5202b7ad3e43f5625f4155c5cc0b0cb0a/IMG_1379.gif" width="80%">
 
 
 <img src="https://github.com/bat-z/bat-z/blob/db593743f20395762a6155e74a6c6c89d94c307e/IMG_8507.jpeg" width="90%">
